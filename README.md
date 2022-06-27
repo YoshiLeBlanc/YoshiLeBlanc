@@ -1,3 +1,3 @@
-- Salve, sou o @YoshiLeBlanc.
+- Salve, pode me chamar de Yoshi ou LeBlanc.
 - Estudando para ser garoto de programa.
 - Busco romance.
